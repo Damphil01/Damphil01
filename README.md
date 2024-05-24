@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Damphil01
+- 👀 I’m interested in Data Analytics
+- 🌱 I’m currently learning Data Analytics
+- 📫 How to reach me @ adedamolacrystal22@gmail.com
